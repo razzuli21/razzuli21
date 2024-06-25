@@ -1,0 +1,8 @@
+- Meu nome é Victor Razzuli
+- tenho 17 anos 
+- estudo na escola dom paulo
+- moro em guarulhos no condominio reserva
+- estou no meu ultimo ano da escola
+- tenho amigos incriveis
+- moro com uma familia incrivel
+- gosto muito de sair com meus amigos. 
